@@ -8,4 +8,4 @@
 - elden ring
 - cs go
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcdromance.org%2Fps2-iso%2Fthe-simpsons-hit-run-usa%2F&psig=AOvVaw3TOF13I3hFGUw2NZCsR2yq&ust=1723754303306000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPCNsair9YcDFQAAAAAdAAAAABAQ)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fes.ign.com%2Fthe-simpsons-hit-run%2F175628%2Fnews%2Fremasterizan-the-simpsons-hit-run-con-unreal-engine-y-el-creador-original-queda-impresionado&psig=AOvVaw3TOF13I3hFGUw2NZCsR2yq&ust=1723754303306000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPCNsair9YcDFQAAAAAdAAAAABAn)
