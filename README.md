@@ -6,6 +6,4 @@
 ### mis juegos favoritos son:
 - simpsons hit and run
 - pes 2013
-- dragon ball z budokai tenkaichi 3
-
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fdragonball.fandom.com%2Fes%2Fwiki%2FDragon_Ball_Z%3A_Budokai_Tenkaichi_2&psig=AOvVaw3LsCHhSZgyknqBrjbRbLOt&ust=1723755340710000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCKjMs5ev9YcDFQAAAAAdAAAAABAE)
+- dragon ball z budokai tenkaichi 3 ![](https://i.ytimg.com/vi/o7DGLhs-Gc0/hqdefault.jpg)
